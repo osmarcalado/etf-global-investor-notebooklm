@@ -39,5 +39,11 @@ Fonte:
 https://global.morningstar.com/
 
 
-## 5. AULA COMPLETA sobre ETF para INICIANTES
+## 6. AULA COMPLETA sobre ETF para INICIANTES
 https://www.youtube.com/watch?v=smUnsQNSqKI
+
+
+## 7. Como Investir em ETFs Passo a Passo
+https://www.youtube.com/watch?v=-zACE-5ZkBM
+
+

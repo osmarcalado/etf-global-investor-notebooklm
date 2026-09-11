@@ -37,3 +37,7 @@ Dados e informações para análise de ETFs.
 
 Fonte:
 https://global.morningstar.com/
+
+
+## 5. AULA COMPLETA sobre ETF para INICIANTES
+https://www.youtube.com/watch?v=smUnsQNSqKI
